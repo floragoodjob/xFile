@@ -1,3 +1,0 @@
-# xFile
-
-Pay me money!
